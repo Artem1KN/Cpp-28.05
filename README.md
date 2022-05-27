@@ -1,3 +1,19 @@
+1 задача
+https://acmp.ru/index.asp?main=task&id_task=197
+
+
+2 задача
+https://acmp.ru/index.asp?main=task&id_task=338
+
+
+3 задача
+https://acmp.ru/index.asp?main=task&id_task=332
+
+
+4 задача
+https://acmp.ru/index.asp?main=task&id_task=489
+
+
 5 задача
 https://acmp.ru/index.asp?main=task&id_task=268
 
